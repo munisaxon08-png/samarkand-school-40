@@ -1,0 +1,1 @@
+# samarkand-school-40
